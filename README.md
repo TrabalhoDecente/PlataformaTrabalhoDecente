@@ -1,1 +1,1 @@
-# Pataforma do Trabalho Decente
+# Plataforma do Trabalho Decente
