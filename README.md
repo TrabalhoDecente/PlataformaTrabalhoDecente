@@ -1,1 +1,1 @@
-# PataformaTrabalhoDecente
+# Pataforma do Trabalho Decente
